@@ -21,3 +21,6 @@
 ![product-4](https://user-images.githubusercontent.com/65374030/147286175-16473957-1d21-46c4-a570-f42f2bc9194d.png)
 ![product-5](https://user-images.githubusercontent.com/65374030/147286176-897ca6ed-fec8-4019-b269-b245e8a88053.png)
 ![product-6](https://user-images.githubusercontent.com/65374030/147286177-164514ea-1c54-4408-a653-7ee81c058335.png)
+![pexels-samfotograffo-3052362](https://user-images.githubusercontent.com/65374030/147292949-cfa4bfcb-e504-4fad-9458-a6a80f153d41.jpg)
+![pexels-robin-stickel-70497](https://user-images.githubusercontent.com/65374030/147292950-8dd78ba7-83be-4371-a325-8e466c5029fb.jpg)
+![pexels-dmitry-sidorov-7014635](https://user-images.githubusercontent.com/65374030/147292952-4b1ee7eb-ce90-4aff-b0db-ae6c5a1dfba2.jpg)
